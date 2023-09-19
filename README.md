@@ -1,4 +1,4 @@
-### Hi there 👋
+### Bem vindo(a) ao meu perfil! 🤍💜
 
 <!--
 **JNJlivia0231a/JNJlivia0231a** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
